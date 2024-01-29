@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Luiz
 - 👀 I’m interested in skateboarding, programing & coding
 - 🌱 I’m currently learning how to kickflip and code in complex figues
-- 💞️ I’m looking to collaborate on september 23
-- 📫 Rech me with dicGB7272)
+- 💞️ I’m looking to collaborate someday
+- 📫 Rech me with discord (luizGB7272)
 - 😄 Pronouns: He Him
 - ⚡ Fun fact: I do jujistu
 
